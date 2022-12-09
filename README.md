@@ -1,7 +1,8 @@
 
 # Thethan Bot Farm 2023 Download Windows / PC Free Install Now for Windows 7, 8.1 &amp; 10 compatibility testing for Windows XP, Vista
 
-![fortnite-overview-heralding-the-herald-1200x607-81176d118ded](https://user-images.githubusercontent.com/118502462/206763626-a34bd07d-2186-4e95-91b0-c7cac57bf9f3.jpg)
+
+![Thetan-Arena-231_Easy-Resize com_-1024x555](https://user-images.githubusercontent.com/118502462/206765606-be83cf38-7df0-4a2e-986d-63328851ab76.jpg)
 
 
 # Thethan Bot Farm 2023 Download Windows Install Now for Window
